@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ayanalam2
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning .Machine learning..
-- 📫 How to reach me .03138080443..
+- 📫 How to reach me .alamayan789@gmail.com
 
 
 <!---
